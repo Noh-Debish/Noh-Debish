@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Noh-Debish
+- 👀 I’m interested in coding
+- 📫 How to reach me nohdebish@gmail.com
